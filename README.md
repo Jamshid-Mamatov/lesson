@@ -1,0 +1,2 @@
+# lesson
+bugun dars utdik
